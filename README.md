@@ -1,1 +1,1 @@
-sou aluna do 2o ano e estou começando a programar # MeuPrimeiroProjeto
+sou aluna do 2o ano tenho 16 anos e estou começando a programar # MeuPrimeiroProjeto
